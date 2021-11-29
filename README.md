@@ -6,4 +6,4 @@ I am interested in front-end and full-stack web development jobs and opportuniti
 
 Check out my website at http://craigreesedev.com/
 
-You can also find me on LinkedIn at https://www.linkedin.com/in/craig-reese-b862a3110
+You can also find me on LinkedIn at https://www.linkedin.com/in/craigareese
